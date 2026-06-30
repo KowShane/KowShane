@@ -7,6 +7,6 @@
 - 👨‍🎓 I’m currently working on getting my BS in Web Design and Development
 - 🌱 I’m constantly learning 
 - ❓ Ask away
-- 📫 How to reach me: kowshane9@gmail.com
+- 📫 How to reach me: shane.kosakowski@mymail.champlain.edu
 - 📼 Fun fact: I have my original VCR and I still watch VHS tapes! aahhh the nostalgia. 
 
